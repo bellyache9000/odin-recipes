@@ -1,1 +1,1 @@
-I have nothing to add to this yet, because I haven't done shit. 
+This is a stupidly simple practice site with lasagna, cookies, and brownies on it. Enjoy. 
